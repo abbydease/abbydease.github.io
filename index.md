@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+**Ingredients:**
+- 1 stick plus 2 tablespoons unsalted butter, chilled
+- 1 1/2 cups all-purpose flour
+- 1 tablespoon sugar
+- 3/4 teaspoon kosher salt
