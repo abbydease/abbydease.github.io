@@ -1,7 +1,7 @@
 ## Claire Saffitz's Apple Cheddar Pie
 
 <p align="center">
-<img src="images/IMG_4490.jpg" width="300" height="400">
+<img src="_posts/images/IMG_4490.jpg" width="300" height="400">
 </p>
 
 I had never been more excited to make a pie than I was when I discovered this recipe on Claire Saffitz's Youtube Channel and had a trip to the mountains of North Carolina lined within the span of a week. I'm not one to really bake pies outside of the holidays (with the exception of a rhubarb pie this past summer) but the promise of freshly picked apples was too good to pass up. And I can honestly say I have never put more effort into a pie because I so desperately wanted this one to turn out. What I was left with, however, was a gorgeous, impressive pie that I didn't love.
@@ -13,7 +13,7 @@ Claire recommends Kerry Gold Dubliner cheese for this recipe, which is delicious
 This filling is phenomenal, but very, very messy. I used three pounds of pink lady apples for the filling so that I could really pack the apple slices in and reduce any potential gaps. I don't know if this was any different from my usual apple-pie-baking quantities or techniques, but I was left with a far stickier mess. I baked the pie on a foil-lined sheet tray (thank goodness), but unfortunately had to deal with a very sticky caramel that seeped out through the lattice and left the bottom of my pie plate a bit difficult to clean. All in all, it was worth it, but it was not the most eye-pleasing presentation. They say you can clean the bottom of the pie plate after removing it from the sheet tray, but I wouldn't say getting up underneath a pie to wipe hardened caramel off the bottom is the easiest task in the world. I ended up just kind of leaving it and wrapping the whole pie in foil to not make a mess in the fridge.
 
 <p align="center">
-<img src="images/IMG_4494.jpg" width="300" height="400">
+<img src="_posts/images/IMG_4494.jpg" width="300" height="400">
 </p>
 
 The crust, once baked, becomes pleasantly golden with darker burnt sections from the cheese. It really is a gorgeous pie that, while perhaps technically a little more advanced, comes together really nicely. I would make it again, but I would probably serve it to someone other than myself. I so badly want to love this pie, but it was not for me and I offer my sincerest apologies to Claire and everyone involved. It is delicious, complex, and unique, but I could barely my second slice leftover. It is highly possible that this is one of those pies that tastes better during the day. Eating this after dinner may have been my downfall, when this is something rich that would probably taste amazing with an iced (or hot) coffee. I think I was just needing a little something to balance me out in terms of flavor. But I do highly recommend this recipe and enjoyed making it. Maybe pick the apples yourself too.
