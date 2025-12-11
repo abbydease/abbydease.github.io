@@ -1,6 +1,6 @@
 ## Claire Saffitz's Apple Cheddar Pie
 
-<img src="[https://github.com/user-attachments/assets/16abfec0-b7a9-434d-8cc3-9b170ee026ad]" width="48">
+<img src="[https://github.com/user-attachments/assets/16abfec0-b7a9-434d-8cc3-9b170ee026ad]" width="30">
 
 I had never been more excited to make a pie than I was when I discovered this recipe on (Claire Saffitz's Youtube Channel)[https://www.youtube.com/watch?v=bvHllD5iFKc&t=1674s] and had a trip to the mountains of North Carolina lined within the span of a week. I'm not one to really bake pies outside of the holidays (with the exception of a rhubarb pie this past summer) but the promise of freshly picked apples was too good to pass up. And I can honestly say I have never put more effort into a pie because I so desperately wanted this one to turn out. What I was left with, however, was a gorgeous, impressive pie that I didn't love.
 
